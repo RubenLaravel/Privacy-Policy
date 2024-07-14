@@ -42,4 +42,4 @@ Contáctanos
 Si tienes alguna pregunta o sugerencia sobre nuestra Política de Privacidad, no dudes en contactarnos.
 
 Información de contacto:
-Correo electrónico: rubenamoretti@gmail.com
+Correo electrónico: arcanecompanyperu@gmail.com
